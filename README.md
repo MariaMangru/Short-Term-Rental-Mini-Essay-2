@@ -1,1 +1,1 @@
-# Short-Term-Rentals-Mini-essay-2
+# Short-Term-Rentals-Mini-Essay-2
